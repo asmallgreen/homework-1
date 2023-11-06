@@ -1,0 +1,1 @@
+![homework](https://github.com/asmallgreen/homework-1/blob/main/01.jpg?raw=true)
